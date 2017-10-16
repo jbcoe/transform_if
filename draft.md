@@ -10,7 +10,7 @@ Date: 2017-10-16
 
 _Jonathan Coe \<jonathanbcoe@gmail.com\>_
 
-_Charlie Beattie \<cbeattie@somewhere.com\>_
+_Charlie Beattie \<charlesbeattie@gmail.com\>_
 
 
 
